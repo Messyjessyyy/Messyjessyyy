@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Messyjessyyy
+- 👋 Hi, I’m @Jessica Huang
 - 👀 I’m interested in everything and anything.
 - 🌱 I’m currently learning how to code.
 - 💞️ I’m looking to collaborate on anything and everything.
