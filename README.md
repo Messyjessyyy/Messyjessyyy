@@ -1,6 +1,6 @@
 ## Hi there 👋
 
-Feel free to look around! 
+Feel free to poke around! 
 
 I'm intrested in Data Analytics, UX/UI, and Computer Vision. 
 
