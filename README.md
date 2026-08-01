@@ -2,7 +2,7 @@
 
 Feel free to poke around! 
 
-I'm intrested in Data Analytics, UX/UI, and Computer Vision. 
+I'm intrested in Software Engineering, Data Science, Data Analytics roles! 
 
 Reach out to me @Jessxcahuang@Gmail.com
 
